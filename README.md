@@ -1,4 +1,4 @@
-🫧
-*Aspiring Full-Stack Developer | Problem Solver | AI/ML Enthusiast*
+☁️
+*SOC Agent | Cloud & Security Enthusiast*
 
-> breaking. fixing. learning.
+> securing the cloud.
